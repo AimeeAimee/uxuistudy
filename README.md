@@ -1,1 +1,1 @@
-# uxuistudy
+# UX/UI Study
